@@ -1,6 +1,6 @@
 # lock-unfree's blog
 
-##wHY?
+##WHY?
 
 ##WHAT?
 
